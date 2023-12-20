@@ -1,1 +1,1 @@
-I have not yet completed my project. I am really sorry for any inconveniences.
+My project is almost completed. I am really sorry for any inconveniences.
